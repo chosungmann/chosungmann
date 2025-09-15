@@ -1,3 +1,3 @@
 # Sungmann Cho
 
-[Curriculum Vitae](curriculum_vitae_20240805.pdf)
+[Curriculum Vitae](curriculum_vitae_20250916.pdf)
